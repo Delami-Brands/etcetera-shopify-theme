@@ -1,0 +1,1 @@
+# etcetera-shopify-theme
